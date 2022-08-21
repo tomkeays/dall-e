@@ -15,10 +15,10 @@ This was the first phrase I tried. The painterly effects are excellent and the s
 
 I thought maybe the word "together" was causing the chimera. But... nope.
 
-![Set #2](painting of an opossum and a crow eating lunch at an outdoor cafe/DALL·E 2022-08-21 10.16.09 - painting of an opossum and a crow eating lunch at an outdoor cafe.png)
-![Set #2](painting of an opossum and a crow eating lunch at an outdoor cafe/DALL·E 2022-08-21 10.16.01 - painting of an opossum and a crow eating lunch at an outdoor cafe.png)
-![Set #2](painting of an opossum and a crow eating lunch at an outdoor cafe/DALL·E 2022-08-21 10.15.52 - painting of an opossum and a crow eating lunch at an outdoor cafe.png)
-![Set #2](painting of an opossum and a crow eating lunch at an outdoor cafe/DALL·E 2022-08-21 10.15.20 - painting of an opossum and a crow eating lunch at an outdoor cafe.png)
+![Set #2](2. painting of an opossum and a crow eating lunch at an outdoor cafe/DALL·E 2022-08-21 10.15.20 - painting of an opossum and a crow eating lunch at an outdoor cafe.png)
+![Set #2](2. painting of an opossum and a crow eating lunch at an outdoor cafe/DALL·E 2022-08-21 10.15.52 - painting of an opossum and a crow eating lunch at an outdoor cafe.png)
+![Set #2](2. painting of an opossum and a crow eating lunch at an outdoor cafe/DALL·E 2022-08-21 10.16.01 - painting of an opossum and a crow eating lunch at an outdoor cafe.png)
+![Set #2](2. painting of an opossum and a crow eating lunch at an outdoor cafe/DALL·E 2022-08-21 10.16.09 - painting of an opossum and a crow eating lunch at an outdoor cafe.png)
 
 ## 3. crow dressed as the grim reaper
 
