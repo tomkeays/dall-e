@@ -39,3 +39,12 @@ Back to the crow and opossum query, I tried separating the two parties in the st
 ![Set #4](4. painting of a crow eating lunch at an outdoor cafe with an opossum/DALL·E 2022-08-21 11.38.26 - painting of a crow eating lunch at an outdoor cafe with an opossum.png)
 ![Set #4](4. painting of a crow eating lunch at an outdoor cafe with an opossum/DALL·E 2022-08-21 11.38.31 - painting of a crow eating lunch at an outdoor cafe with an opossum.png)
 ![Set #4](4. painting of a crow eating lunch at an outdoor cafe with an opossum/DALL·E 2022-08-21 11.38.37 - painting of a crow eating lunch at an outdoor cafe with an opossum.png)
+
+### 5. painting of a crow eating lunch at an outdoor cafe
+
+Alright, let's just ask for a crow without the possum. Success! Everything looks great. So, we have to puzzle out how to have both critters and no chimeras.
+
+![Set #5](5. painting of a crow eating lunch at an outdoor cafe/DALL·E 2022-08-21 14.04.48 - painting of a crow eating lunch at an outdoor cafe.png)
+![Set #5](5. painting of a crow eating lunch at an outdoor cafe/DALL·E 2022-08-21 14.05.11 - painting of a crow eating lunch at an outdoor cafe.png)
+![Set #5](5. painting of a crow eating lunch at an outdoor cafe/DALL·E 2022-08-21 14.05.19 - painting of a crow eating lunch at an outdoor cafe.png)
+![Set #5](5. painting of a crow eating lunch at an outdoor cafe/DALL·E 2022-08-21 14.05.26 - painting of a crow eating lunch at an outdoor cafe.png)
