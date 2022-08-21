@@ -42,7 +42,9 @@ Back to the crow and opossum query, I tried separating the two parties in the st
 
 ### 5. painting of a crow eating lunch at an outdoor cafe
 
-Alright, let's just ask for a crow without the possum. Success! Everything looks great. So, we have to puzzle out how to have both critters and no chimeras.
+Alright, let's just ask for a crow without the possum. Success! Everything looks pretty good, although crow number 3 seems to be using an arm to eat with.
+
+So, we have to puzzle out how to phrase things to show both critters together at the table without any chimeras.
 
 ![Set #5](5. painting of a crow eating lunch at an outdoor cafe/DALL·E 2022-08-21 14.04.48 - painting of a crow eating lunch at an outdoor cafe.png)
 ![Set #5](5. painting of a crow eating lunch at an outdoor cafe/DALL·E 2022-08-21 14.05.11 - painting of a crow eating lunch at an outdoor cafe.png)
