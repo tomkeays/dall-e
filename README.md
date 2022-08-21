@@ -55,7 +55,7 @@ So, we have to puzzle out how to phrase things to show both critters together at
 
 These images are really nailing the outdoor cafe setting, but the animals are getting stranger.
 
-[Set #6](6. painting of an outdoor cafe with a crow and an opossum eating together/DALL·E 2022-08-21 15.11.33 - painting of an outdoor cafe with a crow and an opossum eating together 489.png)
-[Set #6](6. painting of an outdoor cafe with a crow and an opossum eating together/DALL·E 2022-08-21 15.11.42 - painting of an outdoor cafe with a crow and an opossum eating together 489.png)
-[Set #6](6. painting of an outdoor cafe with a crow and an opossum eating together/DALL·E 2022-08-21 15.11.48 - painting of an outdoor cafe with a crow and an opossum eating together 489.png)
-[Set #6](6. painting of an outdoor cafe with a crow and an opossum eating together/DALL·E 2022-08-21 15.11.55 - painting of an outdoor cafe with a crow and an opossum eating together 489.png)
+![Set #6](6. painting of an outdoor cafe with a crow and an opossum eating together/DALL·E 2022-08-21 15.11.33 - painting of an outdoor cafe with a crow and an opossum eating together 489.png)
+![Set #6](6. painting of an outdoor cafe with a crow and an opossum eating together/DALL·E 2022-08-21 15.11.42 - painting of an outdoor cafe with a crow and an opossum eating together 489.png)
+![Set #6](6. painting of an outdoor cafe with a crow and an opossum eating together/DALL·E 2022-08-21 15.11.48 - painting of an outdoor cafe with a crow and an opossum eating together 489.png)
+![Set #6](6. painting of an outdoor cafe with a crow and an opossum eating together/DALL·E 2022-08-21 15.11.55 - painting of an outdoor cafe with a crow and an opossum eating together 489.png)
