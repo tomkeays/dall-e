@@ -1,6 +1,6 @@
 # DALL·E Playground
 
-I just got off the waiting list for DALL·E and began playing around. Because the first results were, frankly, a bit bizarre and way less dialed in than other examples I've seen, I decided to download everything here so I can puzzle out what's going on.
+I just got off the waiting list for **[DALL·E](https://labs.openai.com/)** and began playing around. Because the first results were, frankly, a bit bizarre and way less dialed in than other examples I've seen, I decided to download everything here so I can puzzle out what's going on.
 
 ## Sunday, August 21, 2022
 
