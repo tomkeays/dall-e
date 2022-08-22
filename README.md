@@ -66,10 +66,10 @@ I dropped the painting aspect in order to concentrate on getting very specific w
 
 ### 7. two animals at an outdoor cafe table, one is an opossum sitting on a chair, the other is a black crow pecking at a plate of food on the table
 
-[Set #7](7. two animals at an outdoor cafe table, one is an opossum sitting on a chair, the other is a black crow pecking at a plate of food on the table/DALL·E 2022-08-22 12.49.06 - two animals at an outdoor cafe ta.png)
-[Set #7](7. two animals at an outdoor cafe table, one is an opossum sitting on a chair, the other is a black crow pecking at a plate of food on the table/DALL·E 2022-08-22 12.49.35 - two animals at an outdoor cafe ta.png)
-[Set #7](7. two animals at an outdoor cafe table, one is an opossum sitting on a chair, the other is a black crow pecking at a plate of food on the table/DALL·E 2022-08-22 12.49.43 - two animals at an outdoor cafe ta.png)
-[Set #7](7. two animals at an outdoor cafe table, one is an opossum sitting on a chair, the other is a black crow pecking at a plate of food on the table/DALL·E 2022-08-22 12.49.50 - two animals at an outdoor cafe ta.png)
+![Set #7](7. two animals at an outdoor cafe table, one is an opossum sitting on a chair, the other is a black crow pecking at a plate of food on the table/DALL·E 2022-08-22 12.49.06 - two animals at an outdoor cafe ta.png)
+![Set #7](7. two animals at an outdoor cafe table, one is an opossum sitting on a chair, the other is a black crow pecking at a plate of food on the table/DALL·E 2022-08-22 12.49.35 - two animals at an outdoor cafe ta.png)
+![Set #7](7. two animals at an outdoor cafe table, one is an opossum sitting on a chair, the other is a black crow pecking at a plate of food on the table/DALL·E 2022-08-22 12.49.43 - two animals at an outdoor cafe ta.png)
+![Set #7](7. two animals at an outdoor cafe table, one is an opossum sitting on a chair, the other is a black crow pecking at a plate of food on the table/DALL·E 2022-08-22 12.49.50 - two animals at an outdoor cafe ta.png)
 
 DALL·E still mangles the crow.
 
@@ -77,16 +77,16 @@ DALL·E still mangles the crow.
 
 If not crows, how about ravens? But no; just as before
 
-[Set #8](8. two animals at an outdoor cafe table, one is an opossum sitting on a chair, the other is a black raven pecking at a plate of food on the table/DALL·E 2022-08-22 12.55.55 - two animals at an outdoor caf.png)
-[Set #8](8. two animals at an outdoor cafe table, one is an opossum sitting on a chair, the other is a black raven pecking at a plate of food on the table/DALL·E 2022-08-22 12.56.08 - two animals at an outdoor caf.png)
-[Set #8](8. two animals at an outdoor cafe table, one is an opossum sitting on a chair, the other is a black raven pecking at a plate of food on the table/DALL·E 2022-08-22 12.56.21 - two animals at an outdoor caf.png)
-[Set #8](8. two animals at an outdoor cafe table, one is an opossum sitting on a chair, the other is a black raven pecking at a plate of food on the table/DALL·E 2022-08-22 12.56.28 - two animals at an outdoor caf.png)
+![Set #8](8. two animals at an outdoor cafe table, one is an opossum sitting on a chair, the other is a black raven pecking at a plate of food on the table/DALL·E 2022-08-22 12.55.55 - two animals at an outdoor caf.png)
+![Set #8](8. two animals at an outdoor cafe table, one is an opossum sitting on a chair, the other is a black raven pecking at a plate of food on the table/DALL·E 2022-08-22 12.56.08 - two animals at an outdoor caf.png)
+![Set #8](8. two animals at an outdoor cafe table, one is an opossum sitting on a chair, the other is a black raven pecking at a plate of food on the table/DALL·E 2022-08-22 12.56.21 - two animals at an outdoor caf.png)
+![Set #8](8. two animals at an outdoor cafe table, one is an opossum sitting on a chair, the other is a black raven pecking at a plate of food on the table/DALL·E 2022-08-22 12.56.28 - two animals at an outdoor caf.png)
 
 ### 9. two animals at an outdoor cafe table, one is a black raven pecking at a plate of food on the table, the other is an opossum sitting on a chair
 
 How about if the raven is named first?
 
-[Set #9](9. two animals at an outdoor cafe table, one is a black raven pecking at a plate of food on the table, the other is an opossum sitting on a chair/DALL·E 2022-08-22 12.59.58 - two animals at an outdoor cafe t.png)
-[Set #9](9. two animals at an outdoor cafe table, one is a black raven pecking at a plate of food on the table, the other is an opossum sitting on a chair/DALL·E 2022-08-22 13.00.16 - two animals at an outdoor cafe t.png)
-[Set #9](9. two animals at an outdoor cafe table, one is a black raven pecking at a plate of food on the table, the other is an opossum sitting on a chair/DALL·E 2022-08-22 13.00.24 - two animals at an outdoor cafe t.png)
-[Set #9](9. two animals at an outdoor cafe table, one is a black raven pecking at a plate of food on the table, the other is an opossum sitting on a chair/DALL·E 2022-08-22 13.00.32 - two animals at an outdoor cafe t.png)
+![Set #9](9. two animals at an outdoor cafe table, one is a black raven pecking at a plate of food on the table, the other is an opossum sitting on a chair/DALL·E 2022-08-22 12.59.58 - two animals at an outdoor cafe t.png)
+![Set #9](9. two animals at an outdoor cafe table, one is a black raven pecking at a plate of food on the table, the other is an opossum sitting on a chair/DALL·E 2022-08-22 13.00.16 - two animals at an outdoor cafe t.png)
+![Set #9](9. two animals at an outdoor cafe table, one is a black raven pecking at a plate of food on the table, the other is an opossum sitting on a chair/DALL·E 2022-08-22 13.00.24 - two animals at an outdoor cafe t.png)
+![Set #9](9. two animals at an outdoor cafe table, one is a black raven pecking at a plate of food on the table, the other is an opossum sitting on a chair/DALL·E 2022-08-22 13.00.32 - two animals at an outdoor cafe t.png)
